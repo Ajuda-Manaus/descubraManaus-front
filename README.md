@@ -1,0 +1,1 @@
+# descubraManaus-front
